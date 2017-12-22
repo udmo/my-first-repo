@@ -1,11 +1,10 @@
-
 # Mohammed Moin Uddin
 
 ## Location
 
 I currently live in Houston Texas.
-I have also lived in Dallas.
-During my highschool years I lived in Zambia.
+I have also lived in Dallas Texas.
+During my highschool years I lived in Zambia, which is in south central Africa.
 
 ## Books
 
@@ -14,8 +13,8 @@ During my highschool years I lived in Zambia.
 
 ## Food
 
-I love a good gyro sandwich.
+I love a good gyro or a shawarmah sandwich.
 
 ## Contact
 
-Try emailing me at 'uddinmm@yahoo.com'
+Try emailing me at uddinmm@yahoo.com
