@@ -2,18 +2,18 @@
 
 ## Location
 
-I currently live in Houston Texas.
-I have also lived in Dallas Texas.
-During my highschool years I lived in Zambia, which is in south central Africa.
+We currently live in Houston Texas.
+I have also spent a few years Dallas Texas.
+During my high school years my family and I lived in Zambia.
 
 ## Books
 
-- 1984
-- The Magic of thinking Big
+- 1984, George Orwell
+- The Magic of Thinking Big, David Schwartz
 
 ## Food
 
-I love a good gyro or a shawarmah sandwich.
+I love a good gyro sandwich.
 
 ## Contact
 
